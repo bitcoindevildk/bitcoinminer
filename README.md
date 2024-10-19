@@ -18,5 +18,6 @@ Demo : https://youtu.be/zqaNpJujD-U
 
 buy now : bitcoin-devil.com
 
-admin : @crypt0dk
+Telegram : @crypt0dk
+
 Mail : crypt0dk@proton.me
